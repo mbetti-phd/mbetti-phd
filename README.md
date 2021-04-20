@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mbetti-phd
+- 👀 I’m interested in ecological modeling, evolutionary modeling, infectious disease modeling
+- 🌱 I’m currently learning oh so much
+- 💞️ I’m looking to collaborate on anything and everything :)
+- 📫 How to reach me mbetti@mta.ca
